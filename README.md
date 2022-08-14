@@ -1,6 +1,6 @@
 ### Good morning homies, what'ya doing? 👋
 
-My real name is Ngo Anh Khoi, but I'd prefer to use my username, Starcatcher. You could also call me Harry if you want. I live in Ho Chi Minh city in Vietnam, you may have known it through slander memes regarding it's traffic condition.
+My real name is Ngo Anh Khoi, but I'd prefer to use my username, Starcatcher. You could also call me Harry if you want. I live in Ho Chi Minh city in Vietnam, you may have knew it through slander memes regarding it's traffic condition.
 
 I am come to make and revive KSP mods.
 
