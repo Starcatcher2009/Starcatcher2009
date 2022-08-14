@@ -2,7 +2,7 @@
 
 My real name is Ngo Anh Khoi, but I'd prefer to use my username, Starcatcher. You could also call me Harry if you want.
 
-Everyone's my friends :) Except nazis. And flat-earthers. And anti-vaxes. Also put in race/gender/sexuality supremacists.
+Everyone's my friends :) Except nazis. And flat-earthers. And anti-vaxes. Also put in race/gender/sexuality supremacists too.
 
 
 - 🔭 I’m currently working on adding and updating my Kerbal Space Program add-ons.
